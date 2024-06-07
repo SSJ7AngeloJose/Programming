@@ -5,3 +5,4 @@
 - I'm looking to collaborate on projects
 - how to reach me: .... angelojose
 - fun fact: .... i pay for swith
+-I had pad funk love c
